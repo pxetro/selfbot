@@ -1,2 +1,8 @@
-# selfbot
-Selfbot para discord
+# VXTORX SELFBOT
+
+
+SELFBOT TO DISCORD
+
+PC AND MOBILE
+
+CREATED BY; VXTORX
